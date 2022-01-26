@@ -1,2 +1,2 @@
-# Venus-Noshia-Nails-Web
+# Venus Noshia Nails
 Pagina web sobre una un negocio de uñas
